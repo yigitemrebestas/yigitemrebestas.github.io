@@ -1,1 +1,2 @@
-# yigitemrebestas.github.io
+ADS-352 DERSİ DÖNEM ÖDEVİ ÖRNEK WEBSİTESİ'DİR.
+Yiğit Emre Beştaş
